@@ -1,2 +1,4 @@
 Nada que comentar
 A ser, sincero creo esto a suerte de diario, creyendome, no se un reinvindicador de la verdad y de aquellas cosas bonitas de las que nadie habla, o tal vez si, pero muy despacio como si tuvieran miedo, es entendible, no le pido a nadie amar con sangre, pero si es dulce ver a como las personas se someten a un amante, no hablemos pues de una persona, sino pues de un deseo que lo haga despertarse por las mañanas, eso es bello. O quizas eso quiero pensar, ando en un computadora escribiendo sin saber muy bien el porque, mas aqui estoy. Podria entonces decir aqui todas las cosas que me gustan, pero que sentido tiene eso. Si no haces nada por tus metas, ¿en verdad son metas o solo sueños?
+
+hoy 3/13/23, me depile las piernas con una crema depilante, nada mal eh
